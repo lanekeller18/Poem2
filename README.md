@@ -4,3 +4,4 @@ about a boy
 who made a poem
 that changed
 his day.
+Then he was robbed.
